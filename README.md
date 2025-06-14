@@ -1,12 +1,12 @@
 # Un site de recettes à base de miel
-RECETTE NOUGAT BLANC POUR :10 kg
+## RECETTE NOUGAT BLANC POUR 10 kg
 
-43 blancs d'œufs (1,29 kg)
-3,45 kg de miel
-3,45 Kg de sucre avec 1 litre d'eau
-Une cuisine à soupe de vinaigre
-1,5 Kg d'amandes
-1,5 kg de noisettes
+- 43 blancs d'œufs (1,29 kg)
+- 3,45 kg de miel
+- 3,45 Kg de sucre avec 1 litre d'eau
+- Une cuillère à soupe de vinaigre
+- 1,5 Kg d'amandes
+- 1,5 kg de noisettes
 
 Torréfier les noisettes au four à 170°C environ 12 min. Sur le peuple le faire à l'avance
 
