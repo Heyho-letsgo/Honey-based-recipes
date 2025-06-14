@@ -1,2 +1,515 @@
-# honey
-Un site de recettes à base de miel
+# Un site de recettes à base de miel
+RECETTE NOUGAT BLANC POUR :10 kg
+
+43 blancs d'œufs (1,29 kg)
+3,45 kg de miel
+3,45 Kg de sucre avec 1 litre d'eau
+Une cuisine à soupe de vinaigre
+1,5 Kg d'amandes
+1,5 kg de noisettes
+
+Torréfier les noisettes au four à 170°C environ 12 min. Sur le peuple le faire à l'avance
+
+Les amandes sont saisons au four à 110°C environ 10min
+
+Casser les blancs (plus 4 jaunes) au batteur en 2ème ville, avec le fouet. 
+Les chauffeur régiment avec le chalumeau
+
+Cuire le miel à 135°C, en même temps, cuire le sucre avec l'eau et le vinaigre à 155°C. 
+
+ATTENTION : sur le fait juste en sorte que le sucre et le milieu montent aux modes températures ensemble.
+
+Mettre le batteur en Jème ville, verser le miel à 135°C en filet sur les blancs cassés.
+
+ATTENTION : bien se protéger les mains, c'est chaud.
+
+Commencer au chauffeur au chalumeau la cuve par dessous
+
+Quand le sucre est à 155°C Je verser sur le mélange miel et blanc d'oeuf, le batteur tous en 3ème vitesse
+
+ATTENTION : bien se protéger les mains, c'est chaud.
+
+Chauffer au chalumeau sous la cuve environ 30 à 35 min, sans cesser de remuer pour éviter de brûler la préparation et la cuve. Batteur toujours en Jeme vitesse
+
+Quand la préparation commence à se décoller des bords de ia cuve, sur l'arrestation le batteur, et sur
+
+Testeur avec un coutau sous l'eau froide, pour voir la cohérence du nougat. 
+
+ATTENTION : En hiver sur fera un nougat un peu plus mou qu'en été. En effet plus il fait froid plus le nougat sera dur.
+
+Lorsque le nougat est à la bonne cohérence sur l'arrestation le batteur sur l'envie le fouet et sur l'ajoute les noisettes et les amandes. Suite sur met la feuille au batteur, et l'on fait tourner régiment le batteur quelles secondes en première ville.
+
+ATTENTION : si on met le batteur en 2ème ville à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!
+
+Faire tourner le batteur en deuxière ville entre 20 et 60 secondes pour mettre les amandes et les noisettes.
+
+Débarrasser le nougat soi dans des cadres entre deux feuilles azymes, soi entre deux feuilles de papier cuisson.
+
+Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur,
+
+__________
+
+RECETTE NOUGAT BLANC EXPRESS 1,5 KG
+
+86 g blancs d'œufs (3 blancs)
+
+0,43 kg de miel
+
+0,53 Kg de sucre avec 0,175 Kg d'eau
+
+Une cuisine à soupe de vinaigre
+
+0,23 Kg d'amandes
+
+0,23 Kg de noisettes
+
+de graines de courge
+
+Torréfier les noisettes, au four à 170°C environ 10 min. On peut le faire à l'avance.
+
+Les amandes sont séchées au four à 110°C environ 10min
+
+➤ Cuire le miel, le sucre, l'eau, le vinaigre à 137°C.
+
+Monter les blancs au batteur en 3ème vitesse.
+
+➤ Verser le sirop chaud sur les blancs, batteur en 3ème vitesse pendant 2min.
+
+Enlever le fouet du batteur, mettre la feuille, et ajouter noisettes et amandes, faire tourner légèrement le batteur quelques secondes en lère vitesse.
+
+ATTENTION: si on met le batteur en 2ème vitesse à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!
+
+Faire tourner le batteur en deuxième vitesse entre 20 et 60 secondes pour mélanger les amandes et les noisettes.
+
+Débarrasser le nougat soit dans des cadres entre deux feuilles azymes, soit entre deux feuilles de papier cuisson.
+
+Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur.
+
+Bien emballer et stocker à l'abri de l'humidité
+
+_______
+
+NOUGAT NOIR : 1,2Kg
+
+600g d'amandes.
+
+600g de miel.
+
+1 feuille azyme de 32 cm par 23 cm, pour le dessous et les côtés.
+
+1 feuille azyme de 25 cm par 16 cm, pour le dessous.
+
+41
+
+Déposer au fond et sur les côtés, d'un cadre de 25cm par 16cm et 3,5cm de hauteur, une feuille azyme.
+
+Dans une grande casserole, faire chauffer le miel jusqu'à 138°C.
+
+Mélanger les amandes broyeés et non toréfiées, au miel cuit, avec une cuillère en bois.
+
+Mettre le nougat dans le moule, sur le papier azyme.
+
+Recouvrir avec la 2ème feuille azyme.
+
+➤ Bien presser le nougat avec une planche de bois, d'une dimension légèrement inférieure au cadre.
+
+➤ Attendre environ ½ heure que le nougat refroidisse un peu.
+
+Découper au couteau scie, en barres de 1cm d'épaisseur.
+
+Attention: on doit éviter d'attendre le refroidissement complet du nougat, il sera à ce moment-là très d unifficile à couper.
+__________
+
+SABLÉS AU MIEL : 2Kg
+
+650g de farine de blé T80 ou T65
+
+590 g de miel.
+
+290g de poudre d'amande ou de noisette.
+
+290 g de beurre fondu.
+
+180g ou 9 jaunes d'œufs.
+
+Faire fondre le beurre et le miel dans une casserole.
+
+Rajouter les jaunes d'œufs, battre quelques secondes au fouet.
+
+Mélanger la farine et la poudre d'amande.
+
+➤ Laisser au frigidaire 1 heure.
+
+Sur le plan de travail fariné, modeler des boudins, d'environ 5cm de diamètre. A ce stade on peut rajouter des fruits secs (noix, noisette, amande...), pour faire différents sablés.
+
+➤ Mettre au congélateur. On peut conserver les boudins au congélateur plusieurs mois.
+
+➤ On découpe au couteau des tranches de 0,5 cm d'épaisseur Cuisson à 160°C, 8 á 10 min.
+
+materich; a tube. made in Funes.
+
+pas de bicarbonate de soude, pour que le pâte ne me monte pas.
+
+________
+
+
+RECETTE DU PAIN D'ÉPICES AU MIEL: 17Kg
+
+6,70 kg de miel.
+
+5,70 kg de farine: 4,30 kg blé T 80
+
+1,40 kg seigle, ou châtaigne, ou sarrasin.
+
+4,20 1 d'eau: 1,2 litre eau chaude, 3 1 eau froide
+
+145g de bicarbonate.
+
+Épices: 66g anis poudre
+
+44g cannelle poudre
+
+Pour 1 by de farine niel 1, 175 by
+
+farine slé
+
+0,75 hy
+
+scigh 0,25 has
+
+eru chanh 0,21P
+
+froide 0, 53P
+
+Verser 1,2 litre d'eau chaude dans une casserole, y faire fondre le miel, remuer au fouet.
+
+Tamiser la farine
+
+bicarbonate 25 g epice Sq
+
+Rajouter les 31 d'eau froide restante, mélanger la farine et les épices, si on travaille avec le batteur,on utilise la feuille en lère vitesse.
+
+Faire tourner le batteur 5 min en lère vitesse.
+
+Laisser reposer une nuit, dans un seau fermé.
+
+Ajouter le bicarbonate mélangé à un peu d'eau froide.
+
+Huiler et fariner les moules. Ajouter les fruit secs
+
+Cuire entre 120°C ET 135°C maxi
+
+140 à 45 sun pour un painde ou 60 mn?! 350g
+
+PAIN D'EPICES AU MIEL SANS GLUTEN : 4Kg
+
+1,35kg de miel
+
+1,70kg de farine: 0,92kg riz
+
+0,2 kg maïs
+
+0,58 kg sarrasin
+
+1,05 1 d'eau (0,5 1 eau chaude, 0,55 1 eau froide)
+
+Bicarbonate: 35g
+
+Epices: 10 g anis
+
+6 g cannelle
+
+_________
+
+Guimauve au miel
+
+x 180g de miel
+
+X 75g de sucre
+
+X 11 g de gelatine
+
+X 3 blancs d'oeufs (90g)
+
+X 100g de sucre glace
+
+X 100g de maizena ou fecule de pomme de terre
+
+X Tremper les feuille de gelatine dans de l'eau froide
+
+X Faire chauffer le miel et le sucre ensemble à 134°C
+
+X Monter les blancs et verser le miel à 134°C sur les blancs montés, batteur en 3ème vitesse
+
+X Essorer les feuilles de gelatine, et les incorporer au melange blancs miel, une par une
+
+X Laisser touner le batteur en 3ème,2 à 3 min
+
+X Melanger la maizena et le sucre glace, et tamisé ce mélange sur une feuille de papier cuisson
+
+X Dresser rapidement avec une poche à la douille la guimauve, sur la plaque enduit de sucre glace maizena
+
+X Saupoudrer le reste de sucre glace maizena, sur la guimauve, avec un tamis
+
+X Laisser sécher 12h, et saupoudrer de sucre glace maizena et stocker dans un recipient hermétique
+
+× Possibilité de tremper dans du chocolat de couverture, mise à point
+
+________
+
+Nougat Glacé: 0,8Kg
+
+Mise en garde importante: pour fabriquer et commercialiser des glaces aux œufs cela necessite des normes speciales, le maitien de la chaine du froid, un local adapté... cette recette est donc à utiliser dans un cadre familial et non commercial
+
+120 g de blanc d'oeuf (4)
+
+80 g de jaune d'oeuf (4)
+
+180 g de sucre
+
+160 g de miel (fort du plutôt)
+
+530 g de créme
+
+130 g d'amandes sechées
+
+130g de noisettes torréfiéés
+
+Concasser grossièrement les amandes et les noisettes
+
+Dans une casserole faire un caramel avec 150g de sucre et 50g d'eau
+
+Une fois que le caramel est cuit: melanger avec une cuillère bois les amandes et noisettes concassées, debarrasser sur une feuille cuisson, et aprés refroidissement, écraser au rouleau, de manière a faire des éclats.
+
+Monter la crème au hatteur(créme fouettée) en Jeme vitesse, stocker au frigo.
+
+Monter les jaunes au batteur avec 30 g de sucre, stocker au frigo
+
+Mettre le miel a chauffer jusqu'a 123°C (lorsque le miel atteint 100°C on monte les blancs en neige au batteur en 3ème vitesse)
+
+Incorporer le miel a 123°C dans les blancs montés, le batteur est en 3eme vitesse
+
+Laisser tourner et refroidir le mélange pendant 5 min, minimum(batteur Jéme vitesse)
+
+Dans un grand cul de poule froid melanger délicatement les blancs montés, les jaunes montés, la créme fouettée; ensuite melanger les éclats de noisettes et d'amandes caramélisés
+
+Débarraser le nougat glacé dans des moules, et mettre immédiatement au congelateur, réglé au maxi.
+
+Cette glace se conserve plusieurs jours au congélateur
+
+On peut la servir avec un caramel liquide, ou un coulis de fruit rouges.
+
+____
+
+Guimauve au miel
+
+X 180g de miel
+
+X 75g de sucre
+
+X 11 g de gelatine
+
+X 3 blancs d'oeufs (90g)
+
+X 100g de sucre glace
+
+X 100g de maizena ou fecule de pomme de terre
+
+× Tremper les feuille de gelatine dans de l'eau froide
+
+X Faire chauffer le miel et le sucre ensemble à 134°C
+
+X Monter les blancs et verser le miel à 134°C sur les blancs montés, batteur 3ème vitesse
+
+× Essorer les feuilles de gelatine, et les incorporer au melange blancs miel, par une
+
+X Laisser touner le batteur en 3ème,2 à 3 min
+
+X Melanger la maizena et le sucre glace, et tamisé ce mélange sur une feuil papier cuisson
+
+X Dresser rapidement avec une poche à la douille la guimauve, sur la plaqu enduit de sucre glace maizena
+
+X Saupoudrer le reste de sucre glace maizena, sur la guimauve, avec un tan
+
+X Laisser sécher 12h, et saupoudrer de sucre glace maizena et stocker dan: recipient hermétique
+
+× Possibilité de tremper dans du chocolat de couverture, mise à point
+
+_____
+
+BARRES AUX CEREALES ET FRUITS SECS AU MIEL
+
+350g de miel
+
+170g de flocons céréales
+
+100g de figues sèches en morceaux ou écorces d'orange...
+
+80g de raisins secs
+
+80g de noisettes en morceaux
+
+"I peut être module
+
+A
+
+A
+
+A
+
+A
+
+> 50g de riz soufflé ou blé soufflé
+
+Mélanger tous les ingrédients dans un récipient, sauf le miel
+
+A Dans une casserole faire chauffer le miel à 127°C -128°C
+
+Mélanger le tout dans une casserole, bien remuer avec une cuillère plate en bois
+
+Mettre le tout dans un cadre de 25cm par 16cm et 3,5cm de hauteur
+
+Bien tasser, laisser refroidirlh
+
+Découper au couteau scie, des barres de 12cm de longueur par 1cm d'épaisseur
+
+Emballer dans du film plastique. Conservation plusieurs semaines à l'abri de l'humidité
+
+Possibilité de tremper dans du chocolat de couverture à point (noir ou au lait).
+
+A Ces barres peuvent servir de base à la fabrication de barres chocolatées avec un fourrage miel noisette ou caramel au miel
+
+_____
+
+TUILES DENTELLE AU MIEL :1Kg
+
+250g de miel.
+
+250g de sucre.
+
+250g de beurre.
+
+250g de farine T65 ou T80.
+
+A Faire fondre le beurre, le miel puis le sucre dans une casserole puis rajouter la farine
+
+➤ Laisser reposer 1 heure au réfrigérateur. Possibilité de conserver une semaine dans un récipient fermé.
+
+Cuire sur une feuille silpat à 160°C, environ 5 à 8 min. Faire de petit disque d'environ 5cm de diamètre, soit à la poche à douille (N°8), soit avec une petite cuillère. On peu aussi réaliser de grosse tuile 10cm de diamétre à vendre a l'unité.
+
+Attendre 1 à 2 min après la sortie du four, puis décoller à la palette, et déposer sur un tube d'inox ou de bois, d'environ 4cm de diamètre, pour donner une forme de tuile. Laisser refroidir 5 min.
+
+_____
+
+FINANCIERS AU MIEL :1KG
+
+280 g de miel.
+
+195 g de beurre.
+
+195 g ou 6,5 blancs d'œuf.
+
+150 g de poudre d'amande ou de noisette.
+
+110 g de farine.
+
+50 g de sucre.
+
+Dans un récipient casser les blancs d'œuf au fouet.
+
+Faire fondre le beurre avec le miel et le sucre dans une casserole. Mélanger aux blancs d'œufs.
+
+Ajouter la farine et la poudre d 'amande. Mélanger simplement au fouet.
+
+Mettre au réfrigérateur 1 heure. On peut conserver une dizaine de jours et cuire à la demande.
+
+Cuire dans des moules beurrés et farinés à 170°C, 15 min environ, pour 32 financiers de 75g (en pâte non cuite).
+
+Sablés au miel sans œuf : 1,4Kg
+
+600g de farine
+
+200g de beurre
+
+220g de miel
+
+280g de sucre
+
+100g d'eau
+
+10g de bicarbonate
+
+Dans une casserole faire fondre le beurre et le miel
+
+Ajouter la farine, le sucre, l'eau, pétrir 1 min soit à la main, soit au batteur avec la feuille. Laisser refroidir au frigo, puis ajouter le bicarbonate.
+
+Confiseur des boudins de 4 cm de diamètre, laisser prendre 10min au congénère.
+
+A ce stade sur peu soit conservateur plusieurs semaines au congélateur, soi découper de petit disques de 3 mm d'épaisseur, et cuire à 160°C pendentif 10 à 12 min.
+
+A noter que l'on peut réaliser des sablés ou cookies individuels, en confiserant des boudins plus gros 7 cm à 8 cm de diamètre.
+
+_____
+
+CARAMEL AU MIEL : 1 KG
+
+800g de miel
+
+200g de crème fraîche entière.
+
+10 g de sel ou fleur de sel
+
+A Dans une grande cocotte, faire cuire le miel à 118°C.
+
+A Verser la crème en filet sur le miel bouillant (la température basse), sans cesse de remuer avec le fouet.
+
+A On remonte à une température 110°C., puis on laisse refroidir en trempant la casserole dans de l'eau froide, quand le caramel est à 70°C on remu au fouet a main (cela evite le dephasage).Possibilité de vendre ce caramel en pot.
+
+A Stocker au frais et dire au client de le conserver au frigo (cela evite le dephasage) A ce stade sur peu rajouter 5 à 10 g de sel A
+
+A Pour faire des bons chocolat caramel،sur porte le mélange à 113°C, toujours bien remuer à l'aide du fouet.
+
+A Conservation plusieurs semaines au frais.
+
+Un Pour avoir des caramels plus durs sur monte en température.
+
+Attention au dessus de 138°C le goût peu devenir désagréable, surtout si l'on utilise un milieu fort.
+
+______
+
+
+NOUGAT NOIR : 1,2 kg
+
+600g d'amandes.
+
+600g de miel.
+
+1 feuillet azyme de 32 cm par 23 cm, pour le dessous et les côtés.
+
+1 feuille d'enzyme de 25 cm par 16 cm, verser le dessous.
+
+Déposeur au fond et sur les côtes d'un cadre de 25 cm par 16 cm et 3,5 cm de hauteur, une feuillet azyme. 21
+
+Dans une grande cocotte, faire chauffeur le miel jusqu'à 138°C.
+
+Mélanger les amandes broyeés et non toréfiées, au miel cuit, avec une cuillère en bois.
+
+Mettre le nougat dans le moule, sur le papier azyme.
+
+Recouvrir avec la 2ème feuille d'enzyme.
+
+Bien presser le nougat avec une planche de bois, d'une dimension régiment information au cadre.
+
+Attention environnement ½ heure que le nougat refroidisse un peu.
+
+Découper au couteau science, en barres de 1 cm d'épaisseur.
+
+Attention : sur le fait d'assistant le refroidissement complet du nougat, il sera à ce moment-là à trois difficile à couper.
+
+______
+
+
+
+
+
+
