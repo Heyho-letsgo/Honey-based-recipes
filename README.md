@@ -1,4 +1,6 @@
 # Un site de recettes à base de miel
+- [RECETTE NOUGAT BLANC POUR 10 kg](https://github.com/Heyho-letsgo/Honey-based-recipes?tab=readme-ov-file#recette-nougat-blanc-pour-10-kg)
+
 ## RECETTE NOUGAT BLANC POUR 10 kg
 ### Ingrédients
 - 43 blancs d'œufs (1,29 kg)
