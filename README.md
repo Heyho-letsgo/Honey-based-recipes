@@ -3,7 +3,7 @@
 
 ## RECETTE NOUGAT BLANC POUR 10 kg
 
-### Ingrédients
+### Ingrédients de la recette de nougat blanc pour 10 kg
 
 - 43 blancs d'œufs (1,29 kg)
 - 3,45 kg de miel
@@ -12,16 +12,15 @@
 - 1,5 Kg d'amandes
 - 1,5 kg de noisettes
 
-### Etapes
+### Etapes de la recette de nougat blanc pour 10 kg
 
 1. Torréfier les noisettes au four à 170°C environ 12 minutes. Il est possible de le faire à l'avance
 2. Les amandes sont saisons au four à 110°C environ 10min
 3. Casser les blancs (plus 4 jaunes) au batteur en 2ème ville, avec le fouet. Les chauffeur régiment avec le chalumeau
 4. Cuire le miel à 135°C, en même temps, cuire le sucre avec l'eau et le vinaigre à 155°C. 
-
-ATTENTION : sur le fait juste en sorte que le sucre et le milieu montent aux modes températures ensemble.
-
-5. Mettre le batteur en Jème ville, verser le miel à 135°C en filet sur les blancs cassés.
+5. ATTENTION : sur le fait juste en sorte que le sucre et le milieu montent aux modes températures ensemble.
+> **WARNING**: This is a warning message! Be careful!
+6. Mettre le batteur en Jème ville, verser le miel à 135°C en filet sur les blancs cassés.
 
 ATTENTION : bien se protéger les mains, c'est chaud.
 
