@@ -1,4 +1,4 @@
-# Un site de recettes à base de miel 🐝
+# Recettes à base de miel 🐝
 - [RECETTE NOUGAT BLANC POUR 10 kg](https://heyho-letsgo.github.io/Honey-based-recipes/#recette-nougat-blanc-pour-10-kg)
 - [RECETTE NOUGAT BLANC EXPRESS 1,5 KG](https://heyho-letsgo.github.io/Honey-based-recipes/#recette-nougat-blanc-express-15-kg)
 
