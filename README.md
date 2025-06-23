@@ -50,31 +50,20 @@ __________
 
 ## RECETTE NOUGAT BLANC EXPRESS 1,5 KG
 
-86 g blancs d'œufs (3 blancs)
+- 86 g blancs d'œufs (3 blancs)
+- 0,43 kg de miel
+- 0,53 Kg de sucre avec 0,175 Kg d'eau
+- Une cuillère à soupe de vinaigre
+- 0,23 Kg d'amandes
+- 0,23 kg de noisettes
+- des graines de courge
 
-0,43 kg de miel
-
-0,53 Kg de sucre avec 0,175 Kg d'eau
-
-Une cuisine à soupe de vinaigre
-
-0,23 Kg d'amandes
-
-0,23 kg de noisettes
-
-de graines de courge
-
-Torréfier les noisettes, au four à 170°C environ 10 min. Sur le peuple le faire à l'avance.
-
-Les amandes sont saisons au four à 110°C environ 10min
-
-➤ Cuire le miel, le sucre, l'eau, le vinaigre à 137°C.
-
-Monter les blancs au batteur en 3ème vitesse.
-
-➤ Verser le sirop chaud sur les blancs, batteur en 3ème vite pendentif 2min.
-
-Enlever le fouet du batteur, mettre la feuillete, et ajouter noisettes et amandes, faire tourner le régime le batteur quelles secondes en lère ville.
+1. Torréfier les noisettes, au four à 170°C environ 10 min. Si possible le faire à l'avance.
+2. Les amandes sont saisies au four à 110°C environ 10min
+3. Cuire le miel, le sucre, l'eau, le vinaigre à 137°C.
+4. Monter les blancs au batteur en 3ème vitesse.
+5. Verser le sirop chaud sur les blancs, batteur en 3ème vite pendentif 2min.
+6. Enlever le fouet du batteur, mettre la feuillete, et ajouter noisettes et amandes, faire tourner le régime le batteur quelles secondes en lère ville.
 
 ATTENTION : si on met le batteur en 2ème ville à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!
 
