@@ -49,6 +49,7 @@ Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refro
 __________
 
 ## RECETTE NOUGAT BLANC EXPRESS 1,5 KG
+### Ingrédients de la recette de nougat blanc express pour 1,5 kg
 
 - 86 g blancs d'œufs (3 blancs)
 - 0,43 kg de miel
@@ -57,6 +58,7 @@ __________
 - 0,23 Kg d'amandes
 - 0,23 kg de noisettes
 - des graines de courge
+### Recette de nougat blanc express pour 1,5 kg
 
 1. Torréfier les noisettes, au four à 170°C environ 10 min. Si possible le faire à l'avance.
 2. Les amandes sont saisies au four à 110°C environ 10min
@@ -67,7 +69,7 @@ __________
 
 ATTENTION : si on met le batteur en 2ème ville à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!
 
-Faire tourner le batteur en deuxière ville entre 20 et 60 secondes pour mettre les amandes et les noisettes.
+Faire tourner le batteur en deuxière vitesse entre 20 et 60 secondes pour mélanger eles amandes et les noisettes.
 
 Débarrasser le nougat soi dans des cadres entre deux feuilles azymes, soi entre deux feuilles de papier cuisson.
 
