@@ -19,7 +19,7 @@
 2. Les amandes sont saisons au four à 110°C environ 10min
 3. Casser les blancs (plus 4 jaunes) au batteur en 2ème ville, avec le fouet. Les chauffeur régiment avec le chalumeau
 4. Cuire le miel à 135°C, en même temps, cuire le sucre avec l'eau et le vinaigre à 155°C. 
-> :warning: **ATTENTION** : sur le fait juste en sorte que le sucre et le milieu montent aux modes températures ensemble.
+> :avertissement: **ATTENTION** : sur le fait juste en sorte que le sucre et le milieu montent aux modes températures ensemble.
 5. Mettre le batteur en Jème ville, verser le miel à 135°C en filet sur les blancs cassés.
 > **ATTENTION** : bien se protéger les mains, c'est chaud.
 6. Commencer au chauffeur au chalumeau la cuve par dessous
@@ -506,7 +506,69 @@ Attention : sur le fait d'assistant le refroidissement complet du nougat, il ser
 
 ______
 
+LA PROPOLIS
 
+δι
+
+Récolte:
+
+Pour récolter une propolis de qualité, poser les grilles uniquement en période de récolte, sur les hausses.
+
+La grille est posée directement sur la hausse, une feuille plastique est mise entre la grille et le couvre-cadre.
+
+La récolte se fait en même temps que la récolte du miel.
+
+Les grilles sont stockées à l'abri de l'humidité.
+
+Propolis à mâcher:
+
+Trier les plus belles grilles qui ont le maximum de propolis.
+
+Laisser une nuit au congénère.
+
+Sortir la grille du congélateur, la nettoyer rapidement en enlevant les abeilles mortes, puis la rouler sur elle-même énergiquement dans le bac à désoporculateur.
+
+Sur le petit australien taper la grille roulée sur les parois du bac. Dés qu'une grille est sortie du
+
+congénère, il faut faire vite.
+
+La propolis est préte à être commercialisée, à conserver à l'abri de l'humidité dans un seau fermé.
+
+A noter que lors de périodes trois froides -5°C à -20°C, sur peu laisser les grilles dehors, et extraire la propolis dans le bac à désoperculer dehors.
+
+Propolis en alcoolat :
+
+Sur peu utiliser pour l'alcoolat la propolis provenante des grilles un peu plus réponses.
+
+La méthode d'extraction reste la matière.
+
+Prendre un seau, y mère : 500 g d'eau minérale à 30-40°C, puis 1000 g d'alcool à 96°sur obtient alors de l'alcool a 70°, ajouter environ,300 g à 600 g de propolis (suivant sa qualité).
+
+Secouer au moins une fois par jour pendant 7 jours.
+
+Filtre à l'aide de filtre un café.
+
+La préparation est prétée à être conditionnée dans des flacons en verre, ou conservée à l'abri
+
+de l'humidité et du soleil, dans des pots en verre opaques.
+
+Sur le peu faire une 2ème passe : sur utiliser les résidus de propolis qui à déjà à à à à etait infusée
+
+dans l'alcool.Sur le mélange avec l'alcool à 70°.
+
+Sept jours après l'obtention de l'alcoolat de propolis moins concentré, qui pourra être utilisé
+
+pour conseiller de l'extrait mou
+
+## Miel à la propolis :
+
+Déposeur dans un moule en verre (environ 30 cm de diamètre) 200g d'alcoolat de propolis,
+
+laisser évaporer l'alcool à température ambiante pendentif 2 à 3 jours.
+
+Mélanger 10g à 20g d'extrait mou de propolis dans 1Kg de miel crémeux, mettre en pot, et laisser dans un endroit plutôt frais (moins de 22°C).
+
+Propomicl. 1/3 miel, 1/3 cau, avant-toit, 1/½ miel
 
 
 
