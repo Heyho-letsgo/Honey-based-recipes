@@ -9,7 +9,7 @@
 - 43 blancs d'œufs (1,29 kg)
 - 3,45 kg de miel
 - 3,45 Kg de sucre avec 1 litre d'eau
-- Une cuisine à soupe de vinaigre
+- Une cuillère à soupe de vinaigre
 - 1,5 Kg d'amandes
 - 1,5 kg de noisettes
 
