@@ -1,6 +1,18 @@
 # Recettes à base de miel 🐝
 - [RECETTE NOUGAT BLANC POUR 10 kg](https://heyho-letsgo.github.io/Honey-based-recipes/#recette-nougat-blanc-pour-10-kg)
 - [RECETTE NOUGAT BLANC EXPRESS 1,5 KG](https://heyho-letsgo.github.io/Honey-based-recipes/#recette-nougat-blanc-express-15-kg)
+- [RECETTE DE NOUGAT NOIR : 1,2 kg]
+- [RECETTE DE SABLÉS AU MIEL : 2Kg]
+- [RECETTE DU PAIN D'ÉPICES AU MIEL : 17Kg]
+- [RECETTE PAIN D'EPICES AU MIEL SANS GLUTEN : 4Kg]
+- [RECETTE DE GUIMAUVE AU MIEL]
+- [RECETTE DE NOUGAT GLACé : 0,8 kg]
+- [RECETTE DE BARRES AUX CÉRÉALES ET FRUITS SEC AU MIEL]
+- [RECETTE DE TUILES DENTELLE AU MIEL :1Kg]
+- [RECETTE DE FINANCIERS AU MIEL :1KG]
+- [RECETTE DE CARAMEL AU MIEL : 1 KG]
+- [LA PROPOLIS]
+- [RECETTE DE MIEL A LA PROPOLIS]
 
 ## RECETTE NOUGAT BLANC POUR 10 kg
 
@@ -290,42 +302,6 @@ Cette glace se conserver plusieurs jours au congrès
 Sur peut la servir avec un liquide de caramel, ou un coulis de fruits rouges.
 
 ____
-
-## Guimauve au miel
-
-X 180g de miel
-
-X 75 g de sucre
-
-X 11 g de gélatine
-
-X 3 blancs d'oeufs (90g)
-
-X 100 g de glace sucrée
-
-X 100g de maizena ou fécule de pomme de terre
-
-× Tremper les feuille de gélatine dans de l'eau froide
-
-X Faire chauffeur le miel et le sucre ensemble à 134°C
-
-X Monter les blancs et verser le miel à 134°C sur les blancs montés, batteur 3ème ville
-
-× Essorer les feuilles de gélatine, et les incorporer au mélange blancs miel, par une
-
-X Laisser touner le batteur en 3ème,2 à 3 min
-
-X Melanger la maizena et le sucre glace, et tamisé ce mélange sur un feu papier cuisson
-
-X Robe rapide avec un poché à la douce la guimauve, sur la plaqu enduit de sucre glace maizena
-
-X Saupoudrer le reste de sucre glace maizena, sur la guimauve, avec un bronzage
-
-X Laisser sécher 12h, et saupoudrer de sucre glace maizena et stocker dan : destinataire hermétique
-
-× Possibilité de tremper dans du chocolat de couverture, mise à point
-
-_____
 
 ## BARRES AUX CÉRÉALES ET FRUITS SEC AU MIEL
 
