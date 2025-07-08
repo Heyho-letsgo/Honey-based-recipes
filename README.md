@@ -38,7 +38,7 @@
 
 Quand le sucre est à 155°C Je verser sur le mélange miel et blanc d'oeuf, le batteur tous en 3ème vitesse
 
-ATTENTION : bien se protéger les mains, c'est chaud.
+> 🔥 **ATTENTION** : bien se protéger les mains, c'est chaud.
 
 Chauffer au chalumeau sous la cuve environ 30 à 35 min, sans cesser de remuer pour éviter de brûler la préparation et la cuve. Batteur toujours en Jeme vitesse
 
