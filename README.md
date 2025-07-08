@@ -31,7 +31,7 @@
 2. Les amandes sont saisons au four à 110°C environ 10min
 3. Casser les blancs (plus 4 jaunes) au batteur en 2ème ville, avec le fouet. Les chauffeur régiment avec le chalumeau
 4. Cuire le miel à 135°C, en même temps, cuire le sucre avec l'eau et le vinaigre à 155°C. 
-> ❗: **ATTENTION** : sur le fait juste en sorte que le sucre et le milieu montent aux modes températures ensemble.
+> ❗ **ATTENTION** : sur le fait juste en sorte que le sucre et le milieu montent aux modes températures ensemble.
 5. Mettre le batteur en Jème ville, verser le miel à 135°C en filet sur les blancs cassés.
 > 🔥: **ATTENTION** : bien se protéger les mains, c'est chaud.
 6. Commencer au chauffeur au chalumeau la cuve par dessous
