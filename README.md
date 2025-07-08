@@ -46,11 +46,11 @@ Quand la préparation commence à se décoller des bords de ia cuve, sur l'arres
 
 Testeur avec un coutau sous l'eau froide, pour voir la cohérence du nougat. 
 
-ATTENTION : En hiver sur fera un nougat un peu plus mou qu'en été. En effet plus il fait froid plus le nougat sera dur.
+> ❗ **ATTENTION** : En hiver sur fera un nougat un peu plus mou qu'en été. En effet plus il fait froid plus le nougat sera dur.
 
 Lorsque le nougat est à la bonne cohérence sur l'arrestation le batteur sur l'envie le fouet et sur l'ajoute les noisettes et les amandes. Suite sur met la feuille au batteur, et l'on fait tourner régiment le batteur quelles secondes en première ville.
 
-ATTENTION : si on met le batteur en 2ème ville à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!
+> ❗ **ATTENTION** : si on met le batteur en 2ème ville à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!
 
 Faire tourner le batteur en deuxière ville entre 20 et 60 secondes pour mettre les amandes et les noisettes.
 
