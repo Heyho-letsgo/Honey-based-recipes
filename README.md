@@ -92,7 +92,7 @@ Bien emballer et stocker à l'abri de l'humidité
 
 _______
 
-## NOUGAT NOIR : 1,2 kg
+## RECETTE DE NOUGAT NOIR POUR 1,2 KG
 ### Ingrédients de la recette de nougat noir pour 1,2 KG
 
 - 600g d'amandes.
@@ -100,18 +100,18 @@ _______
 - 1 feuillet azyme de 32 cm par 23 cm, pour le dessous et les côtés.
 - 1 feuillet azyme de 25 cm par 16 cm, verser le dessous.
 
-### RECETTE DE NOUGAT NOIR POUR 1,2 KG
+### Recette de nougat noir pour 1,2 KG
 
-1. Déposeur au fond et sur les côtés, d'un cadre de 25 cm par 16 cm et 3,5 cm de hauteur, une feuillet azyme.
-2. Dans une grande cocotte, faire chauffeur le miel jusqu'à 138°C.
+1. Déposer au fond et sur les côtés, d'un cadre de 25 cm par 16 cm et 3,5 cm de hauteur, une feuille azyme.
+2. Dans une grande cocotte, faire chauffer le miel jusqu'à 138°C.
 3. Mélanger les amandes broyées et non toréfiées, au miel cuit, avec une cuillère en bois.
 4. Mettre le nougat dans le moule, sur le papier azyme.
 5. Recouvrir avec la 2ème feuille d'enzyme.
 6. Bien presser le nougat avec une planche de bois, d'une dimension légèrement inférieure au cadre.
-7. Attention environnement ½ heure que le nougat refroidisse un peu.
+7. Attention environnement une demie heure que le nougat refroidisse un peu.
 8. Découper au couteau scie, en barres de 1 cm d'épaisseur.
 
-> 🔥 **Attention** : Il faut éviter d'attendre le refroidissement complet du nougat, il sera à ce moment-là à très difficile à couper.
+> 🔥 **Attention** : Il faut éviter d'attendre le refroidissement complet du nougat, il sera à ce moment-là à très/trop difficile à couper.
 __________
 
 ## SABLÉS AU MIEL : 2Kg
