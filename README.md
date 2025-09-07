@@ -38,10 +38,10 @@
 6. En même temps, cuire le sucre avec l'eau et le vinaigre à 155°C. > ❗ **ATTENTION** : **Il doit être fait en sorte que le sucre et le miel montent aux modes températures ensemble.**
 7. Mettre le batteur en troisième vitesse.
 8. Verser le miel à 135°C en filet sur les blancs cassés.> 🔥 **ATTENTION** : **Bien se protéger les mains, c'est chaud.**
-9. Commencer au chauffeur au chalumeau la cuve par dessous
+9. Commencer à chauffer au chalumeau la cuve par dessous
 10. Quand le sucre est à 155°C, le verser sur le mélange miel et blanc d'oeuf, le batteur toujours en 3ème vitesse> 🔥 **ATTENTION** : bien se protéger les mains, c'est chaud.
-11. Chauffer au chalumeau sous la cuve environ 30 à 35 min, sans cesser de remuer pour éviter de brûler la préparation et la cuve. Batteur toujours en troisième vitesse.
-12. Quand la préparation commence à se décoller des bords de la cuve, on arrête le bateur, et on teste avec un couteau sous l'eau froide pour voir la consistance du nougat > ❗ **ATTENTION** : **En hiver sur fera un nougat un peu plus mou qu'en été. En effet plus il fait froid plus le nougat sera dur.**
+11. Chauffer au chalumeau sous la cuve environ 30 à 35 min, **sans cesser de remuer (pas au même endroit)** pour éviter de brûler la préparation et la cuve. Batteur toujours en troisième vitesse.
+12. Quand la préparation commence à se décoller des bords de la cuve, on arrête le bateur, et on teste avec un couteau sous l'eau froide pour voir la consistance du nougat > ❗ **ATTENTION** : **En hiver on fera un nougat un peu plus mou qu'en été. En effet plus il fait froid plus le nougat sera dur.**
 13. Lorsque le nougat est à la bonne consistance, on arrête le batteur, on enlève le fouet et on ajoute les noisettes et les amandes.
 14. Ensuite, on met la feuille au batteur, et l'on fait tourner le batteur quelque secondes **en première vitesse**. > ❗ **ATTENTION** : **si on met le batteur en 2ème vitesse à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!**
 15. Faire tourner le batteur en deuxière vitesse entre 20 et 60 secondes pour mélanger les amandes et les noisettes.
