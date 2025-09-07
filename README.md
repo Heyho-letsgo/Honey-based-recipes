@@ -111,7 +111,7 @@ _______
 7. Attention environnement une demie heure que le nougat refroidisse un peu.
 8. Découper au couteau scie, en barres de 1 cm d'épaisseur.
 
-> 🔥 **Attention** : Il faut éviter d'attendre le refroidissement complet du nougat, il sera à ce moment-là à très/trop difficile à couper.
+> 🔥 **Attention** : **Il faut éviter d'attendre le refroidissement complet du nougat, il sera à ce moment-là à très/trop difficile à couper.**
 __________
 
 ## SABLÉS AU MIEL : 2Kg
