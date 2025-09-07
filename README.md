@@ -21,43 +21,34 @@
 
 - 43 blancs d'œufs (1,29 kg)
 - 3,45 kg de miel
-- 3,45 Kg de sucre a[vec 1 litre d'eau
+- 3,45 Kg de sucre avec 1 litre d'eau
 - Une cuillère à soupe de vinaigre
 - 1,5 Kg d'amandes
 - 1,5 kg de noisettes
 
 ### Etapes de la recette de nougat blanc pour 10 kg
 
+🔥 **ATTENTION** **La quantité de nougat produit pour cette recette demande un gros batteur, un chalumeau à gaz  et la préparation en amont des cadres correspondants**
+
 1. Torréfier les noisettes au four à 170°C environ 12 minutes. Il est possible de le faire à l'avance
 2. Les amandes sont saisons au four à 110°C environ 10min
-3. Casser les blancs (plus 4 jaunes) au batteur en 2ème ville, avec le fouet. Les chauffeur régiment avec le chalumeau
-4. Cuire le miel à 135°C, en même temps, cuire le sucre avec l'eau et le vinaigre à 155°C. 
-> ❗ **ATTENTION** : sur le fait juste en sorte que le sucre et le milieu montent aux modes températures ensemble.
-5. Mettre le batteur en Jème ville, verser le miel à 135°C en filet sur les blancs cassés.
-> 🔥 **ATTENTION** : bien se protéger les mains, c'est chaud.
-6. Commencer au chauffeur au chalumeau la cuve par dessous
+3. Casser les blancs **(plus 4 jaunes)** au batteur en 2ème ville, avec le fouet.
+4. Les chauffer légèrement avec le chalumeau.
+5. Cuire le miel à 135°C,
+6. En même temps, cuire le sucre avec l'eau et le vinaigre à 155°C. > ❗ **ATTENTION** : **Il doit être fait en sorte que le sucre et le miel montent aux modes températures ensemble.**
+7. Mettre le batteur en troisième vitesse.
+8. Verser le miel à 135°C en filet sur les blancs cassés.> 🔥 **ATTENTION** : **Bien se protéger les mains, c'est chaud.**
+9. Commencer au chauffeur au chalumeau la cuve par dessous
+10. Quand le sucre est à 155°C, le verser sur le mélange miel et blanc d'oeuf, le batteur toujours en 3ème vitesse> 🔥 **ATTENTION** : bien se protéger les mains, c'est chaud.
+11. Chauffer au chalumeau sous la cuve environ 30 à 35 min, sans cesser de remuer pour éviter de brûler la préparation et la cuve. Batteur toujours en troisième vitesse.
+12. Quand la préparation commence à se décoller des bords de la cuve, on arrête le bateur, et on teste avec un couteau sous l'eau froide pour voir la consistance du nougat > ❗ **ATTENTION** : **En hiver sur fera un nougat un peu plus mou qu'en été. En effet plus il fait froid plus le nougat sera dur.**
+13. Lorsque le nougat est à la bonne consistance, on arrête le batteur, on enlève le fouet et on ajoute les noisettes et les amandes.
+14. Ensuite, on met la feuille au batteur, et l'on fait tourner le batteur quelque secondes **en première vitesse**. > ❗ **ATTENTION** : **si on met le batteur en 2ème vitesse à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!**
+15. Faire tourner le batteur en deuxière vitesse entre 20 et 60 secondes pour mélanger les amandes et les noisettes.
+16. Débarrasser le nougat soi dans des cadres entre deux feuilles azymes, soi entre deux feuilles de papier cuisson.
+17. Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur,
 
-Quand le sucre est à 155°C Je verser sur le mélange miel et blanc d'oeuf, le batteur tous en 3ème vitesse
-
-> 🔥 **ATTENTION** : bien se protéger les mains, c'est chaud.
-
-Chauffer au chalumeau sous la cuve environ 30 à 35 min, sans cesser de remuer pour éviter de brûler la préparation et la cuve. Batteur toujours en Jeme vitesse
-
-Quand la préparation commence à se décoller des bords de ia cuve, sur l'arrestation le batteur, et sur
-
-Testeur avec un coutau sous l'eau froide, pour voir la cohérence du nougat. 
-
-> ❗ **ATTENTION** : En hiver sur fera un nougat un peu plus mou qu'en été. En effet plus il fait froid plus le nougat sera dur.
-
-Lorsque le nougat est à la bonne cohérence sur l'arrestation le batteur sur l'envie le fouet et sur l'ajoute les noisettes et les amandes. Suite sur met la feuille au batteur, et l'on fait tourner régiment le batteur quelles secondes en première ville.
-
-> ❗ **ATTENTION** : si on met le batteur en 2ème ville à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!
-
-Faire tourner le batteur en deuxière ville entre 20 et 60 secondes pour mettre les amandes et les noisettes.
-
-Débarrasser le nougat soi dans des cadres entre deux feuilles azymes, soi entre deux feuilles de papier cuisson.
-
-Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur,
+Conservation de plusieurs mois à l'abri de l'humidité.
 
 __________
 
