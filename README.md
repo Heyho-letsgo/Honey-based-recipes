@@ -154,26 +154,20 @@ ________
 
 Cuire entre 120°C ET 135°C maxi
 #### Temps de cuisson
-Pour un pain de 350 G : 40 à 45 mn
-Pour un pain de 3 Kg : 2h30 à 3h
+- Pour un pain de 350 G : 40 à 45 mn
+- Pour un pain de 3 Kg : 2h30 à 3h
 
 ## PAIN D'EPICES AU MIEL SANS GLUTEN : 4Kg
 
-1,35 kg de miel
-
-1,70 kg de farine : 0,92 kg riz
-
-0,2 kg maïs
-
-0,58 kg de sarrasine
-
-1,05 1 d'eau (0,5 1 eau chaude, 0,55 1 eau froide)
-
-Bicarbonate : 35g
-
-Épices : 10 g anis
-
-Cannelle de 6 g
+- 1,35 kg de miel
+- 0,92 kg riz
+- 0,2 kg maïs
+- 0,58 kg de sarrasine
+- 0,5 1itre d'eau chaude
+- 0,55 1itre d'eau froide
+- 35g de bicarbonate
+- 10 grammes d'anis
+- 6 grammes de cannelle
 
 _________
 
