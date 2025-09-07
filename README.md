@@ -85,7 +85,7 @@ _______
 ## RECETTE DE NOUGAT NOIR POUR 1,2 KG
 ### Ingrédients de la recette de nougat noir pour 1,2 KG
 
-- 600g d'amandes.
+- 600g d'amandes broyées.
 - 600g de miel.
 - 1 feuillet azyme de 32 cm par 23 cm, pour le dessous et les côtés.
 - 1 feuillet azyme de 25 cm par 16 cm, verser le dessous.
@@ -106,35 +106,24 @@ _______
 __________
 
 ## SABLÉS AU MIEL : 2Kg
+### Ingrédients de la recette des sablés au miel : 2 kg
 
-650g de farine de blé T80 ou T65
+- 650g de farine de blé T80 ou T65
+- 590 g de miel.
+- 290g de poudre d'amande ou de noisette.
+- 290 g de beurre fondu.
+- 180g ou 9 jaunes d'œufs.
 
-590 g de miel.
+### Recette des sablés au miel : 2 kg
 
-290g de poudre d'amande ou de noisette.
-
-290 g de beurre fondu.
-
-180g ou 9 jaunes d'œufs.
-
-Faire fondre le beurre et le miel dans une cocotte.
-
-Rajouter les jaunes d'œufs, bataille quelles secondes au fouet.
-
-Mélanger la farine et la poudre d'amande.
-
-➤ Laisser au frigidaire 1 heure.
-
-Sur le plan de travail fariné, mode liste des boudins, d'environ 5 cm de diamètre. A ce stade sur peu rajouter des fruits secs (noix, noisette, amande...), pour faire différents sablés.
-
-➤ Mettre au congénère. Sur peu conserver les boudins au congénère plusieurs mois.
-
-➤ Sur découpe au couteau des tranches de 0,5 cm d'épaisseur Cuisson à 160°C, 8 á 10 min.
-
-materich; un tube. fabriqué à Funes.
-
-pas de bicarbonate de soude, pour que le pâté ne me monte pas.
-
+1. Faire fondre le beurre et le miel dans une cocotte.
+2. Rajouter les jaunes d'œufs, bataille quelles secondes au fouet.
+3. Mélanger la farine et la poudre d'amande.
+4. Laisser au frigidaire 1 heure.
+5. Sur le plan de travail fariné, modeler des boudins, d'environ 5 cm de diamètre. A ce stade on peut rajouter des fruits secs (noix, noisette, amande...), pour faire différents sablés.
+6. Mettre au congélateur. On peutconserver les boudins au congélateur plusieurs mois.
+7. On découpe au couteau des tranches de 0,5 cm d'épaisseur.
+8. Cuisson à 160°C, 8 à 10 minutes.
 ________
 
 
