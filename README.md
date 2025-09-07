@@ -79,7 +79,9 @@ __________
 4. Monter les blancs au batteur en 3ème vitesse.
 5. Verser le sirop chaud sur les blancs, batteur en 3ème vite pendentif 2min.
 6. Enlever le fouet du batteur, mettre la feuillete, et ajouter noisettes et amandes, faire tourner le régime le batteur quelles secondes en première vitesse.
+   
 > 🔥 **ATTENTION : si on met le batteur en 2ème vitesse à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!**
+
 7. Faire tourner le batteur en deuxière vitesse entre 20 et 60 secondes pour mélanger eles amandes et les noisettes.
 8. Débarrasser le nougat soi dans des cadres entre deux feuilles azymes, soi entre deux feuilles de papier cuisson.
 9. Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur.
