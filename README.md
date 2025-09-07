@@ -14,6 +14,10 @@
 - [RECETTE DE CARAMEL AU MIEL : 1 KG](https://heyho-letsgo.github.io/Honey-based-recipes/#caramel-au-miel--1-kg)
 - [LA PROPOLIS]
 - [RECETTE DE MIEL A LA PROPOLIS]
+- [BONBONS AU MIEL]
+- [GANACHE AU MIEL A DECOUPER : 770 G]
+- [PATE A TARTINER AU MIEL ET AUX NOISETTES]
+- [MISE AU POINT DU CHOCOLAT]
 
 ## RECETTE NOUGAT BLANC POUR 10 kg
 
@@ -71,9 +75,10 @@ __________
 5. Verser le sirop chaud sur les blancs, batteur en 3ème vite pendentif 2min.
 6. Enlever le fouet du batteur, mettre la feuillete, et ajouter noisettes et amandes, faire tourner le régime le batteur quelles secondes en première vitesse. > 🔥 **ATTENTION : si on met le batteur en 2ème vitesse à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!**
 7. Faire tourner le batteur en deuxière vitesse entre 20 et 60 secondes pour mélanger eles amandes et les noisettes.
-8. Débarrasser le nougat soi dans des cadres entre deux feuilles azymes, soi entre deux feuilles de papier cuisson.
-9. Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur.
-10. Bien emballer et stocker à l'abri de l'humidité
+8. Débarrasser le nougat soiT dans des cadres entre deux feuilles azymes, soiT entre deux feuilles de papier cuisson.
+9. Mettre le nougat dans une pièce un peu plus fraîche.
+10. **Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur.**
+11. Bien emballer et stocker à l'abri de l'humidité
 
 _______
 
