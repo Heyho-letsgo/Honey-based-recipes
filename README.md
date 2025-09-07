@@ -78,17 +78,12 @@ __________
 3. Cuire le miel, le sucre, l'eau, le vinaigre à 137°C.
 4. Monter les blancs au batteur en 3ème vitesse.
 5. Verser le sirop chaud sur les blancs, batteur en 3ème vite pendentif 2min.
-6. Enlever le fouet du batteur, mettre la feuillete, et ajouter noisettes et amandes, faire tourner le régime le batteur quelles secondes en lère ville.
-
-ATTENTION : si on met le batteur en 2ème ville à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!
-
-Faire tourner le batteur en deuxière vitesse entre 20 et 60 secondes pour mélanger eles amandes et les noisettes.
-
-Débarrasser le nougat soi dans des cadres entre deux feuilles azymes, soi entre deux feuilles de papier cuisson.
-
-Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur.
-
-Bien emballer et stocker à l'abri de l'humidité
+6. Enlever le fouet du batteur, mettre la feuillete, et ajouter noisettes et amandes, faire tourner le régime le batteur quelles secondes en première vitesse.
+> 🔥 **ATTENTION : si on met le batteur en 2ème vitesse à ce moment-là, les amandes et les noisettes vont voltiger dans toute la pièce !!!**
+7. Faire tourner le batteur en deuxière vitesse entre 20 et 60 secondes pour mélanger eles amandes et les noisettes.
+8. Débarrasser le nougat soi dans des cadres entre deux feuilles azymes, soi entre deux feuilles de papier cuisson.
+9. Mettre le nougat dans une pièce un peu plus fraîche. Découper après un refroidissement de une à deux heures, suivant la température extérieure et l'épaisseur.
+10. Bien emballer et stocker à l'abri de l'humidité
 
 _______
 
@@ -110,6 +105,7 @@ _______
 6. Bien presser le nougat avec une planche de bois, d'une dimension légèrement inférieure au cadre.
 7. Attention environnement une demie heure que le nougat refroidisse un peu.
 8. Découper au couteau scie, en barres de 1 cm d'épaisseur.
+9. Bien emballer et stocker à l’abri de l’humidité
 
 > 🔥 **Attention** : **Il faut éviter d'attendre le refroidissement complet du nougat, il sera à ce moment-là à très/trop difficile à couper.**
 __________
