@@ -2,7 +2,7 @@
 - [RECETTE NOUGAT BLANC POUR 10 kg](https://heyho-letsgo.github.io/Honey-based-recipes/#recette-nougat-blanc-pour-10-kg)
 - [RECETTE NOUGAT BLANC EXPRESS 1,5 KG](https://heyho-letsgo.github.io/Honey-based-recipes/#recette-nougat-blanc-express-15-kg)
 - [RECETTE DE NOUGAT NOIR : 1,2 kg](https://heyho-letsgo.github.io/Honey-based-recipes/#nougat-noir--12-kg).
-- [RECETTE DE SABLÉS AU MIEL : 2Kg](https://Heyho-letsgo/Honey-based-recipes/#sabl%C3%A9s-au-miel--2kg)
+- [RECETTE DE SABLÉS AU MIEL : 2Kg](https://heyho-letsgo.github.io/Honey-based-recipes/#sabl%C3%A9s-au-miel--2kg)
 - [RECETTE DU PAIN D'ÉPICES AU MIEL : 17Kg]
 - [RECETTE PAIN D'EPICES AU MIEL SANS GLUTEN : 4Kg]
 - [RECETTE DE GUIMAUVE AU MIEL]
