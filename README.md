@@ -128,52 +128,34 @@ ________
 
 
 ## RECETTE DU PAIN D'ÉPICES AU MIEL : 17Kg
+### Ingrédients pour la recette de pain d'épice au miel : 17 kg
 
-6,70 kg de miel.
+- 6,70 kg de miel.
+- 4,30 kg de farine de blé T 80
+- 1,40 kg de farine de seigle, ou de châtaigne, ou de sarrasin.
+- 1,2 litre d'eau chaude
+- 3 1itres d'eau froide
+- 145 grammes de bicarbonateen.
+- 66 grammes d'anis en poudre.
+- 44 grammes de cannelle en poudre.
 
-5,70 kg de farine : 4,30 kg bé T 80
+### Recette de pain d'épice au miel : 17 kg
 
-1,40 kg seigle, ou châtaigne, ou sarrasin.
-
-4,20 1 d'eau : 1,2 litre d'eau chaude, 3 1 eau froide
-
-145 g de bicarbonate.
-
-Épices : 66 g anis poudre
-
-Cannelle Poudre 44g
-
-Verser 1 par de farine niel 1, 175 par
-
-farine slé
-
-0,75 hy
-
-scigh 0,25 a
-
-eru chanh 0,21P
-
-froide 0, 53P
-
-Verser 1,2 litre d'eau chaude dans une cocotte, y faire fondre le miel, remuer au fouet.
-
-Tamer la farine
-
-bicarbonate 25 g épice Sq
-
-Rajouter les 31 d'eau libre restaurant la farine et les épices،si sur travail avec le batteur،on utilise la feuille en lère ville.
-
-Faire tourner le batteur 5 min en lère ville.
-
-Laisser reposer une nuit, dans un seau fermé.
-
-Ajouter le bicarbonate misangé à un peu d'eau froide.
-
-Huiler et fariner les moules. Ajouter les fruits sec
+1. Verser 1,2 litre d'eau chaude dans une casserole.
+2. Y faire fondre le miel, remuer au fouet
+3. Tamiser la farine
+4. Rajouter les 3 litres d'eau froide.
+5. Rajouter la farine et les épices. Avec le batteur, on utilise la feuille en première vitesse.
+6. Faire tourner le batteur 5 min en première vitesse.
+7. Laisser reposer une nuit, dans un seau fermé.
+8. Ajouter le bicarbonate mélangé à un peu d'eau froide.
+9. Huiler et fariner les moules.
+10. Ajouter les fruits sec
 
 Cuire entre 120°C ET 135°C maxi
-
-140 à 45 soleil pour un painde ou 60 mn?! 350g
+#### Temps de cuisson
+Pour un pain de 350 G : 40 à 45 mn
+Pour un pain de 3 Kg : 2h30 à 3h
 
 ## PAIN D'EPICES AU MIEL SANS GLUTEN : 4Kg
 
