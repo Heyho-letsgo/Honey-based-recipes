@@ -4,13 +4,14 @@
 - [RECETTE DE NOUGAT NOIR : 1,2 kg](https://heyho-letsgo.github.io/Honey-based-recipes/#nougat-noir--12-kg).
 - [RECETTE DE SABLÉS AU MIEL : 2Kg](https://heyho-letsgo.github.io/Honey-based-recipes/#sabl%C3%A9s-au-miel--2kg)
 - [RECETTE DU PAIN D'ÉPICES AU MIEL : 17Kg](https://heyho-letsgo.github.io/Honey-based-recipes/#recette-du-pain-d%C3%A9pices-au-miel--17kg)
-- [RECETTE PAIN D'EPICES AU MIEL SANS GLUTEN : 4Kg]
-- [RECETTE DE GUIMAUVE AU MIEL]
-- [RECETTE DE NOUGAT GLACé : 0,8 kg]
-- [RECETTE DE BARRES AUX CÉRÉALES ET FRUITS SEC AU MIEL]
-- [RECETTE DE TUILES DENTELLE AU MIEL :1Kg]
-- [RECETTE DE FINANCIERS AU MIEL :1KG]
-- [RECETTE DE CARAMEL AU MIEL : 1 KG]
+- [RECETTE PAIN D'EPICES AU MIEL SANS GLUTEN : 4Kg](https://heyho-letsgo.github.io/Honey-based-recipes/#pain-depices-au-miel-sans-gluten--4kg)
+- [RECETTE DE GUIMAUVE AU MIEL](https://heyho-letsgo.github.io/Honey-based-recipes/#guimauve-au-miel)
+- [RECETTE DE NOUGAT GLACé : 0,8 kg](https://heyho-letsgo.github.io/Honey-based-recipes/#glac%C3%A9-nougat--08-kg)
+- [RECETTE DE BARRES AUX CÉRÉALES ET FRUITS SEC AU MIEL](https://heyho-letsgo.github.io/Honey-based-recipes/#barres-aux-c%C3%A9r%C3%A9ales-et-fruits-sec-au-miel).
+- [RECETTE DE TUILES DENTELLE AU MIEL :1Kg](https://heyho-letsgo.github.io/Honey-based-recipes/#tuiles-dentelle-au-miel-1kg).
+- [RECETTE DE FINANCIERS AU MIEL :1KG](https://heyho-letsgo.github.io/Honey-based-recipes/#financiers-au-miel-1kg).
+- [RECETTE DE SABLé AU MIEL SANS OEUF : 1,4Kg](https://heyho-letsgo.github.io/Honey-based-recipes/#sabl%C3%A9s-au-miel-sans-%C5%93uf--14kg)
+- [RECETTE DE CARAMEL AU MIEL : 1 KG](https://heyho-letsgo.github.io/Honey-based-recipes/#caramel-au-miel--1-kg)
 - [LA PROPOLIS]
 - [RECETTE DE MIEL A LA PROPOLIS]
 
@@ -20,7 +21,7 @@
 
 - 43 blancs d'œufs (1,29 kg)
 - 3,45 kg de miel
-- 3,45 Kg de sucre avec 1 litre d'eau
+- 3,45 Kg de sucre a[vec 1 litre d'eau
 - Une cuillère à soupe de vinaigre
 - 1,5 Kg d'amandes
 - 1,5 kg de noisettes
@@ -473,7 +474,7 @@ Attention : sur le fait d'assistant le refroidissement complet du nougat, il ser
 
 ______
 
-LA PROPOLIS
+## LA PROPOLIS
 
 δι
 
