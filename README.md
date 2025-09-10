@@ -242,7 +242,7 @@ ____
 - 80g de noisettes en morceaux
 - 50g de riz soufflé ou blé soufflé
 
-### Ingrédients pour barres aux céréales et au fruits secs au miel
+### Recette pour barres aux céréales et au fruits secs au miel
 
 1. Mélanger tous les ingrédients dans un récipient, sauf le miel.
 2. Dans une casserole faire chauffeur le miel à 127°C -128°C.
