@@ -172,38 +172,29 @@ Cuire entre 120°C ET 135°C maxi
 _________
 
 ## Guimauve au miel
+### Ingrédients pour Guimauve au miel 
 
-x 180g de miel
+- 180g de miel
+- 75 g de sucre
+- 11 g de gélatine
+- 3 blancs d'oeufs (90g)
+- 100 g de glace sucrée
+- 100g de maizena ou fécule de pomme de terre
 
-X 75 g de sucre
+### Recette pour guimauve au miel
 
-X 11 g de gélatine
+1. Tremper les feuille de gélatine dans de l'eau froide
+2. Faire chauffer le miel et le sucre ensemble à 134°C
+3. Monter les blancs et verser le miel à 134°C sur les blancs montés, batteur en 3ème vitesse
+4. Essorer les feuilles de gélatine, et les incorporer au mélange blancs et miel, une par une.
+5. Laisser touner le batteur en 3ème,2 à 3 min. 
+6. Mélanger la maizena et le sucre glace.
+7. Tamiser ce mélange sur une feuille de papier cuisson.
+8. Sur la plaque enduit de sucre glace maizena, dresser rapidement la guimauve avec une poche douille.
+9. Saupoudrer le reste de sucre glace maizena, sur la guimauve, avec un tamis.
+10. Laisser sécher 12h, et stocker dans un récipiant hermétique.
 
-X 3 blancs d'oeufs (90g)
-
-X 100 g de glace sucrée
-
-X 100g de maizena ou fécule de pomme de terre
-
-X Tremper les feuille de gélatine dans de l'eau froide
-
-X Faire chauffeur le miel et le sucre ensemble à 134°C
-
-X Monter les blancs et verser le miel à 134°C sur les blancs montés, batteur en 3ème vitesse
-
-X Essorer les feuilles de gélatine, et les incorporer au mélange blancs miel, une par une
-
-X Laisser touner le batteur en 3ème,2 à 3 min
-
-X Melanger la maizena et le sucre glace, et tamisé ce mélange sur une feuille de papier cuisson
-
-X Robe rapide avec un poché à la douce la guimauve, sur la plaque enduit de sucre glace maizena
-
-X Saupoudrer le reste de sucre glace maizena, sur la guimauve, avec un tamis
-
-X Laisser sécher 12h, et saupoudrer de sucre glace maizena et stocker dans un destinataire hermétique
-
-× Possibilité de tremper dans du chocolat de couverture, mise à point
+ X Possibilité de tremper dans du chocolat de couverture, mise à point
 
 ________
 
