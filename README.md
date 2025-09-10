@@ -277,22 +277,21 @@ _____
 
 ## TUILES DENTELLE AU MIEL :1Kg
 
-250g de miel.
+### Ingrédients pour tuiles dentelle au miel: 1Kg
 
-250g de sucre.
+- 250g de miel.
+- 250g de sucre.
+- 250g de beurre.
+- 250g de farine T65 ou T80.
 
-250g de beurre.
+### Recette pour tuiles dentelle au miel: 1Kg
 
-250g de farine T65 ou T80.
-
-A Faire fondre le beurre, le miel puis le sucre dans une casserole puis rajouter la farine
-
-➤ Laisser reposer 1 heure au réfrigérateur. Possibilité de conservation une semaine dans un destinataire fermé.
-
-Cuire sur une feuille silpat à 160°C, environ 5 à 8 min. Faire de petit disque d'environnement 5 cm de diamètre, soi à la poche à douce (N°8), soi avec une petite tasse. Sur peu aussi raffineur de gros tuile 10 cm de diamètre à vendre à l'unité.
-
-Assister 1 à 2 min après la sortie du four, puis décoller à la palette, et déposer sur un tube d'inox ou de bois, d'environ 4 cm de diamètre, pour donner une forme de tuile. Laisser refroidir 5 min.
-
+1. Faire fondre le beurre, le miel puis le sucre dans une casserole puis rajouter la farine.
+2. Laisser reposer 1 heure au réfrigérateur. *Possibilité de conservation une semaine dans un récipient fermé.*
+3. Sur une feuille silpat, faire de petit disque d'environnement 5 cm de diamètre, soit à la poche à douille (N°8), soit avec une petite cuillère. On peu aussi réaliser de grosses tuiles 10 cm de diamètre à vendre à l'unité.
+4. Cuire  à 160°C, environ 5 à 8 min.
+5. Attendre 1 à 2 min après la sortie du four, puis décoller à la palette, et déposer sur un tube d'inox ou de bois ou une bouteille en verre, d'environ 4 cm de diamètre, pour donner une forme de tuile. Laisser refroidir 5 min.
+Cuire  à 160°C, environ 5 à 8 min.
 _____
 ## FINANCIERS AU MIEL :1KG
 
