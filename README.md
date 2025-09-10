@@ -171,7 +171,7 @@ Cuire entre 120°C ET 135°C maxi
 
 _________
 
-## Guimauve au miel
+## GUIMAUVE AU MIEL
 ### Ingrédients pour Guimauve au miel 
 
 - 180g de miel
@@ -198,47 +198,36 @@ _________
 
 ________
 
-## Glacé Nougat : 0,8 kg
+## Nougat  : 0,8 kg
 
 Mise en garde importante : pour fabriquer et commercialiser des glaces aux œufs cela necessite des normes spéciales, le maitien de la chaîne du froid, un local adapté... cette recette est donc à utiliser dans un cadre familial et non commercial
 
-120 g de blanc d'oeuf (4)
+### Ingrédient pour nougat glacé : 0,8 KG
 
-80 g de jaune d'oeuf (4)
+- 120 g de blanc d'oeuf (4)
+- 80 g de jaune d'oeuf (4)
+- 180 g de sucre
+- 160 g de miel (fort du plutôt)
+- 530 g de crème
+- 130 g d'amandes sechées
+- 130g de noisettes torréfiées
+- Concasser grossissement les amandes et les noisettes
 
-180 g de sucre
+### Recette pour nougat glacé : 0,8 KG
 
-160 g de miel (fort du plutôt)
+1. Dans une casserole faire un caramel avec 150g de sucre et 50g d'eau.
+2. Une fois que le caramel est cuit : melanger avec une cuillère bois, les amandes et noisettes concassées, debarrasser sur une feuille cuisson, et après refroidissement, écraser au rouleau, de manière a faire des éclats.
+3. Monter la crème au chapeau (créme fouette) en 3ème vitesse, stocker au frigo.
+4. Monter les jaunes au batteur avec 30 g de sucre, stocker au frigo.
+5. Mettre le miel a chauffeur **jusqu'a 123°C (lorsque le miel atteint 100°C on monte les blancs en neige au batteur en 3ème vitesse).**
+6. Incorporer **le miel à 123°C** dans les blancs montés, le batteur est en 3eme vitesse
+7. Laisser tourner **et refroidir le mélange 5 min, minimum** (batteur 3ème vitesse)
+8. Dans un grand cul de poule **froid melanger délicatement** les blancs montés, les jaunes montés, la crème fouettée ; ensuite mélanger les éclats de noisettes et d'amandes caramélisées.
+9. Débarraser le nougat glacé dans des moules, et **mettre immédiatement au congélateur**, réglé au maxi.
 
-530 g de crème
+Cette glace se conserve plusieurs jours au congélateur.
 
-130 g d'amandes sechées
-
-130g de noisettes torréfiées
-
-Concasser grossissement les amandes et les noisettes
-
-Dans une casserole faire un caramel avec 150g de sucre et 50g d'eau
-
-Une fois que le caramel est cuit : melanger avec une cuillère bois les amandes et noisettes concassées, debarrasser sur une feuille cuisson, et après refroidissement, écraser au rouleau, de manière a faire des éclats.
-
-Monter la crème au chapeau (créme fouette) en Jeme vitee, stocker au frigo.
-
-Monter les jaunes au batteur avec 30 g de sucre, stocker au frigo
-
-Mettre le miel a chauffeur jusqu'a 123°C (lorsque le miel atteint 100°C sur monte les blancs en neige au batteur en 3ème ville)
-
-Incorporer le miel a 123°C dans les blancs montés, le batteur est en 3eme ville
-
-Pendentif Laisser tourner et refroidir le mélange 5 min, minimum (batteur Jème vite)
-
-Dans un grand cul de poule froid melanger application les blancs montés, les jaunes montés, la crème fouettée ; suite melanger les éclats de noisettes et d'amandes caramélisées
-
-Débarraser le nougat glacé dans des moules, et mettre immédiation au congelateur, réglé au maxi.
-
-Cette glace se conserver plusieurs jours au congrès
-
-Sur peut la servir avec un liquide de caramel, ou un coulis de fruits rouges.
+On peut la servir avec un caramel liquide ou un coulis de fruits rouges.
 
 ____
 
