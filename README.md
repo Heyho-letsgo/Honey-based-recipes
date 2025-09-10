@@ -233,45 +233,28 @@ ____
 
 ## BARRES AUX CÉRÉALES ET FRUITS SEC AU MIEL
 
-350g de miel
+### Ingrédients pour barres aux céréales et au fruits secs au miel
 
-170g de flocons céréales
+- 350g de miel
+- 170g de flocons céréales
+- 100g de figures sèches en morceaux ou écorces d'orange...
+- 80 g de raisins secs
+- 80g de noisettes en morceaux
+- 50g de riz soufflé ou blé soufflé
 
-100g de figures sèches en morceaux ou écorces d'orange...
+### Ingrédients pour barres aux céréales et au fruits secs au miel
 
-80 g de raisins secs sec sec sec
-
-80g de noisettes en morceaux
-
-"Module Je peules être
-
-A
-
-A
-
-A
-
-A
-
-> 50g de riz soufflé ou blé soufflé
-
-Mélanger tous les ingrédients dans un destinataire, sauc le miel
-
-A Dans une casserole faire chauffeur le miel à 127°C -128°C
-
-Mélanger le tout dans une cocotte, bien remuer avec une cuillère plate en bois
-
-Mettre le tout dans un cadre de 25 cm par 16 cm et 3,5 cm de hauteur
-
-Bien tasser, laisser refroidirlh
-
-Découper au couteau science, des barres de 12 cm de longueur par 1 cm d'épaisseur
-
-Emballer dans du film plastique. Conservation plusieurs semaines à l'abri de l'humidité
+1. Mélanger tous les ingrédients dans un récipient, sauf le miel.
+2. Dans une casserole faire chauffeur le miel à 127°C -128°C.
+3. Mélanger le tout dans une casserole, bien remuer avec une cuillère plate en bois.
+4. Mettre le tout dans un cadre de 25 cm par 16 cm et 3,5 cm de hauteur.
+5. Bien tasser, laisser refroidir.
+6. Découper au couteau scie, des barres de 12 cm de longueur par 1 cm d'épaisseur.
+7. Emballer dans du film plastique. Conservation plusieurs semaines à l'abri de l'humidité
 
 Possibilité de tremper dans du chocolat de couverture à point (noir ou au lait).
 
-A Ces barres peuvent servir de base à la fabrication de barres chocolées avec un fourrage miel noisette ou caramel au miel
+Ces barres peuvent servir de base à la fabrication de barres chocolatées avec un fourrage miel noisette ou caramel au miel
 
 _____
 
